@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @karlujan
+- 👀 I’m interested in UX/UI design and code
+- 📫 Reach me at karinalujan.design@gmail.com
