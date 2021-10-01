@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @karlujan
-- 👀 I’m interested in UX/UI design and code
+- 👀 I’m a designer that likes to code
 - 📫 Reach me at karinalujan.design@gmail.com
